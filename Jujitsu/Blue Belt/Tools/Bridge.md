@@ -1,2 +1,0 @@
-Sholder - 
-Power - 
